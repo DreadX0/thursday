@@ -1,5 +1,5 @@
-# thursday hi aiden
-this is DreadX
+# thursday hi
+this is DreadX and aiden
 i play games for a living u should too 
 every day i will add one more game but not on the weekend
 fnaf1:https://pixeldrain.com/u/ooagRLSh
