@@ -8,9 +8,9 @@ fnaf1:https://pixeldrain.com/u/ooagRLSh
 
 fnaf2:https://pixeldrain.com/u/drYXZPxt
 
-fnaf3:
+fnaf3:https://pixeldrain.com/u/UJ4NVqit
 
-fnaf4:
+fnaf4:https://pixeldrain.com/u/gK48A1eD
 
 tabs:https://pixeldrain.com/u/WpZ5TRPS
 
