@@ -16,8 +16,6 @@ tabs:https://pixeldrain.com/u/WpZ5TRPS
 
 peopleplaygroud:https://pixeldrain.com/u/Wqzpm61L
 
-fnafsacuraty:https://gofile.io/d/jvQl6v
-
 pleasedonttouchanything3D:https://pixeldrain.com/u/xJcw6evx
 
 daviago:https://pixeldrain.com/u/ZBd25CNC
