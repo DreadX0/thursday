@@ -1,8 +1,7 @@
 # thursday
 this is DreadX and aiden
 we play games for a living u should too 
-every day i will add one more game but not on the weekend
-tell me if any thing doesent work
+have fun
 
 fnaf1:https://pixeldrain.com/u/ooagRLSh
 
