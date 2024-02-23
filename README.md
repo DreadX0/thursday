@@ -1,5 +1,6 @@
 # thursday
 this is DreadX and aiden and jaysen
+
 we play games for a living u should too 
 have fun
 
