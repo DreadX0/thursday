@@ -1,7 +1,7 @@
 # thursday
-this is DreaX and jaysen and krew
+this is DreaX 
 
-we play games for a living u should too 
+i play games for a living u should too 
 have fun
 
 fnaf1:https://pixeldrain.com/u/ooagRLSh
