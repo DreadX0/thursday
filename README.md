@@ -1,5 +1,5 @@
 # thursday
-this is DreaX 
+this is DreadX 
 
 i play games for a living u should too 
 have fun
